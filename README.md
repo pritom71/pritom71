@@ -52,4 +52,4 @@ Welcome to my GitHub profile! Dive into my repositories to explore innovative pr
 
 ### 🌟 Fun Fact
 
-🎸 I play guitar chords and enjoy crafting music in my leisure time!
+🎸 I play guitar and enjoy crafting music in my leisure time!
